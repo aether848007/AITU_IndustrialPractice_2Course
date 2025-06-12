@@ -1,0 +1,1 @@
+# AITU_IndustrialPractice_2Course
